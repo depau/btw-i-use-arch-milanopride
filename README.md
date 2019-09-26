@@ -1,5 +1,7 @@
 # Milano Pride 2019 "btw I use arch" shirt
 
+Telegram Sticker Pack: https://t.me/addstickers/btwiusearch
+
 As seen on Reddit: https://www.reddit.com/r/linuxmasterrace/comments/c71q9k/arch_users_spotted_at_the_gay_pride_in_milan/
 
 The original design, I'm the guy in the picture.
