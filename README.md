@@ -1,4 +1,6 @@
-# Milano Pride 2019 "btw I use arch" shirt
+# Milano Pride "gay arch user" shirt
+
+Use the git tags to find the previous versions of the design.
 
 Telegram Sticker Pack: https://t.me/addstickers/btwiusearch
 
